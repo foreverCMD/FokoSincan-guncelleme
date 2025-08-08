@@ -1,1 +1,1 @@
-# Uygulama-guncelleme
+# FOKO SİNCAN UYGULAMA-guncelleme
